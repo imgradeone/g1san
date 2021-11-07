@@ -12,10 +12,6 @@ permalink: ./fdhr.html
 
 [Meteor-朔田流星](https://space.bilibili.com/367305029/)
 
-## 未确认账号
-
-[杰哥铁牛官方频道](https://space.bilibili.com/354609744)
-
 ## 大佐（死了的）旧号
 
 [真纪那莲斗](https://space.bilibili.com/393488900/)
