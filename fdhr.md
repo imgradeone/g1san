@@ -6,11 +6,13 @@ permalink: ./fdhr.html
 
 ## 现存账号
 
-[飞电或人-02](https://space.bilibili.com/600584354)
+[浮世英寿-Geats二世](https://space.bilibili.com/3493144930814687)（2023 年 3 月 1 日新开的逃生舱，，，）
 
-[神山飞羽真-XrossSaber](https://space.bilibili.com/423310471)
+[飞电或人-02](https://space.bilibili.com/600584354)（不活跃，，，）
 
-[Meteor-朔田流星](https://space.bilibili.com/367305029/)
+[浮世英寿-Geats](https://space.bilibili.com/423310471)（32023 年 3 月 1 日被暂封 7 天，，，）
+
+[Meteor-朔田流星](https://space.bilibili.com/367305029/)（不活跃，，，）
 
 ## 大佐（死了的）旧号
 
