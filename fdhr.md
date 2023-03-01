@@ -10,7 +10,7 @@ permalink: ./fdhr.html
 
 [飞电或人-02](https://space.bilibili.com/600584354)（不活跃，，，）
 
-[浮世英寿-Geats](https://space.bilibili.com/423310471)（32023 年 3 月 1 日被暂封 7 天，，，）
+[浮世英寿-Geats](https://space.bilibili.com/423310471)（2023 年 3 月 1 日被暂封 7 天，，，）
 
 [Meteor-朔田流星](https://space.bilibili.com/367305029/)（不活跃，，，）
 
